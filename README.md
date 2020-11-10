@@ -3,4 +3,4 @@ Welcome! Here I'm going to store my random scientific thoughts, whether about bi
 
 Hold your judgements as I guess what happens in the unknown:)
 
-Inspired by Peter Dervan - "I'm walking into a dark room. If you want to come along, man, come along!"
+Inspired by Peter Dervan - "I'm walking into a dark room. If you want to come along, man, come along!" ~2019
